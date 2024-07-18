@@ -1,4 +1,3 @@
-## Hi there 👋
 # Husni Ali Husni
 
 ## Sobre mim
